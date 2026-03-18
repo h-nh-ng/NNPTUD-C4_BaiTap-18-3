@@ -1,1 +1,5 @@
 # NNPTUD-C4_BaiTap-18-3 (NGUYENHUUNHAN-2280602175)
+![z7632918569732_2ba289dff8cee0f6a24e1b9384bf0853](https://github.com/user-attachments/assets/85aad001-f38b-43d4-8c7a-26061212bb24)
+![z7632932750047_7ad918432f3371d0a1a1226345ff3a96](https://github.com/user-attachments/assets/b7711368-e066-4023-a77f-5bd4456a0efc)
+![z7632956040891_8ebf7ac328c08d86f7717ea6b4e9058e](https://github.com/user-attachments/assets/cb28c9d4-cebf-4371-8101-0229aa229a82)
+![z7632967597217_43cc0b82e50bac6e0d1ccc8b4a2b46c4](https://github.com/user-attachments/assets/43521538-ef5b-4467-82cf-a0a0764e9910)
